@@ -1,0 +1,1 @@
+# Omega IA pessoal
